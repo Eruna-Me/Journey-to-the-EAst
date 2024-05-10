@@ -1,1 +1,1 @@
-# Journey-to-the-EAst
+Journey to the East
